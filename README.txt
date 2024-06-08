@@ -1,1 +1,1 @@
-Pierrot OpenSource
+Pierrot OpenSource Plus
